@@ -1,0 +1,2 @@
+# Permanganato-glicerina-
+Experiencia rq 
